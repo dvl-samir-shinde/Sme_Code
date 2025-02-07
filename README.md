@@ -1,1 +1,1 @@
-# Knowladge Secession Code
+# Knowledge Session Code
